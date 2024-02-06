@@ -1,1 +1,1 @@
-Smoke hasish
+Smoke hashish
