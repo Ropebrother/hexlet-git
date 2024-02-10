@@ -1,1 +1,1 @@
-Privet, mama!
+Privet privet!
