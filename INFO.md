@@ -1,1 +1,1 @@
-Ya Razberys s etim
+Po4ti yje rozobralsya
